@@ -6,4 +6,3 @@ nemtudom miért hasznos, de egy jó projekt<br>
 
 
 2021.12.19<br>
-qkristof.hu
